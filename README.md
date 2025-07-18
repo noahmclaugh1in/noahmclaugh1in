@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @knownquantity
 - 👀 I’m interested in all things consumer technology, IRL communities, web3 and surfing 
 - 🌱 I’m currently learning many things 
-- 📫 Follow me on X @0xdisconoah
+- 📫 Follow me on X @knownquantity_
 - ⚡ Fun fact: I got lost in the Algerian desert 
